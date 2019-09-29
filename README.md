@@ -16,7 +16,50 @@ Description.
 ## Lyrics
 
 ```
+A Cyberspace State of Mind (The Map Hip Hop)
+By MOTHNODE
+A Rap
+Yeah, yeah
+Ayo, crew, it's time.
+It's time, crew (aight, crew, begin).
+Straight out the bright dungeons of rap.
 
+The light drops deep as does my script.
+I never cruise, 'cause to cruise is the brother of manuscript.
+Beyond the walls of enemies, life is defined.
+I think of isolation when I'm in a Cyberspace state of mind.
+
+Hope the night got some insight.
+My bite don't like no dirty white.
+Run up to the right and get the site.
+
+In a Cyberspace state of mind.
+What more could you ask for? The brushed light?
+You complain about dirty chips.
+I gotta love it though - somebody still speaks for the white.
+
+I'm rappin' to the map,
+And I'm gonna move your cap.
+
+Greasy, sharp, rancid, like a tail
+Boy, I tell you, I thought you were a pale.
+
+I can't take the dirty chips, can't take the benni.
+I woulda tried to raid I guess I got no guinea.
+
+I'm rappin' to the cap,
+And I'm gonna move your map.
+
+Yea, yaz, in a Cyberspace state of mind.
+
+When I was young my brother had a manuscript.
+I waz kicked out without no crypt.
+I never thought I'd see that transcript.
+Ain't a soul alive that could take my brother's nondescript.
+
+A lifeless key is quite the c.
+
+Thinking of isolation. Yaz, thinking of isolation (isolation).
 
 ```
 
