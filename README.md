@@ -9,15 +9,13 @@
 Description.
 
 
-**Title:** A Cyberspace State of Mind / **Featuring:** 
+**Title:** A Cyberspace State of Mind / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** 
+**Production:** x / **Lyrics:** MOTHNODE/The Void
 
 ## Lyrics
 
 ```
-A Cyberspace State of Mind (The Map Hip Hop)
-By MOTHNODE
 A Rap
 Yeah, yeah
 Ayo, crew, it's time.
